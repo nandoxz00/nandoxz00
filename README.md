@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nandoxz00
 - 👀sou moreno e tenho 18 
-- 🌱gosto de mecger no celular 
+- 🌱gosto de mecher no celular 
 - 💞️gosto de ficar junto com mnha mina 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
